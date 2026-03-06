@@ -1,2 +1,4 @@
 # Portfolio-
 Qualified ESL &amp; Science teacher with over 7 years’ experience in Thailand. Skilled in STEM, curriculum design, and multilingual communication. I create engaging lessons, exams, and resources to help diverse learners succeed.
+About Me
+I am Ahmad Khalid Oriakhil, a dedicated ESL and Science educator with over 12 years of teaching experience in Thailand and Afghanistan. I hold a Master’s in IT Management from Assumption University and a TESOL certification with distinction. My expertise spans curriculum design, bilingual instruction, and corporate training, helping diverse learners improve English proficiency and succeed academically. Fluent in English, Pashto, Dari, and proficient in Thai, I specialize in bridging cultural and educational gaps through engaging, student-centered teaching.
